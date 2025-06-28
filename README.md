@@ -1,16 +1,16 @@
 ## Hi there 👋
+*i'm currentlly working at basisschool de Hoeksteen , i'm currently learning about the github app , so i can easily put everything i did in class or make an anouncement for the parents. Some personal information of who i am* : 
+-i'm a teacher and a student i study further to get more knowledge , to give lessons in the upperclasses . i'm studying the subject English. 
 
-<!--
-**laksh212/laksh212** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+**How to reach me**?
+ By mailing me or my number or a message on the github app. 
+You can ask me anythiong related to the students or the work i've done in class. 
 
-Here are some ideas to get you started:
+ *Fun fact about me* : i love laughing so i give my lessons with fun , jokes , but i'm also strict when needed . 
+ 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+  
+
+
+
